@@ -17,7 +17,7 @@
 - 🌐 [About My Project](https://t.me/HeavensUpdate)
 - 📫 [Telegram](https://t.me/mikazuuu07)
 - 🎼 [Roselia-Fire Bird](https://youtu.be/5AwP7S9f3A8)
-- 🎮 [Fap Ninja]
+- 🎮 Fap Ninja
 - 💻 BIOS User
 - 🎉 May 26, 1997
 	
